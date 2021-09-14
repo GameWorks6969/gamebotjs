@@ -1,10 +1,10 @@
 ### Hi there 👋
 
 ### info :
-- 🔭 I’m currently working on GameBot <br>
+- 🔭 I’m currently working on FireBot <br>
 - 🌱 I’m currently learning everything kill me <br>
 - 💬 Ask me about stuff if you need help you can contact me by looking below <br>
-- 📫 How to reach me: Email : cyberbot90000@gmail.com, Discord : GameWorksYT!#7682, Twitter : https://twitter.com/NinjaShadowFox2 <br>
+- 📫 How to reach me: Email : support@majongtech.xyz, Discord : GameWorks#6969, Twitter : https://twitter.com/NinjaShadowFox2 <br>
 - ⚡ Fun fact: me is stupid <br>
 
 ### Languages and stuff:
